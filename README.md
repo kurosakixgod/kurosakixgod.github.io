@@ -1,0 +1,1 @@
+# kurosakixgod.github.io
